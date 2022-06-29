@@ -1,7 +1,7 @@
 ### Hi there 🩰
-Welcome to this page, where all the baby steps of mine was kept ♡
+Welcome to my page, where all the baby steps of mine was kept ♡
 
-I am a sophomore majoring in Computer Science in NYCU(NCTU), who chose CS by accident and struggled. But found joy and happiness from achievements and precious friendships I've earned. I regard the little accident as a gift from life, which you only have once, and is our duty to live it as fully as possible.
+I am a sophomore in NYCU(NCTU), who chose CS by accident and struggled. But found joy and happiness through achievements and precious friendships I've earned. I regard the little accident as a gift from life, which you only have once, and is our duty to live it as fully as possible.
 
 Aside from schoolwork, I also enjoy ballet, movies and writing.
 
