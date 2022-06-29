@@ -1,4 +1,4 @@
-### Hi there 👋 🩰
+### Hi there 🩰
 I am a sophomore majoring in Computer Science in NYCU(NCTU).
 
 Aside from schoolwork, I also enjoy ballet, movies and writing.
