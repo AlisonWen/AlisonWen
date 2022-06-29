@@ -1,6 +1,8 @@
-### Hi there 👋 
+### Hi there 👋 🩰
 I am a sophomore majoring in Computer Science in NYCU(NCTU).
-Aside from s
+
+Aside from schoolwork, I also enjoy ballet, movies and writing.
+
 <!--
 **AlisonWen/AlisonWen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
