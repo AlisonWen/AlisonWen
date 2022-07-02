@@ -5,7 +5,7 @@ I am a sophomore in NYCU(NCTU), who chose CS by accident and struggled. But foun
 
 Aside from schoolwork, I also enjoy ballet, movies and writing.
 
-
+Reach me through [LinkIn](www.linkedin.com/in/柏萱-温-108771240)
 
 <!--
 **AlisonWen/AlisonWen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
