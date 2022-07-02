@@ -5,7 +5,7 @@ I am a sophomore in NYCU(NCTU), who chose CS by accident and struggled. But foun
 
 Aside from schoolwork, I also enjoy ballet, movies and writing.
 
-- Reach me through [LinkIn](www.linkedin.com/in/柏萱-温-108771240)
+- Reach me through [LinkedIn](www.linkedin.com/in/柏萱-温-108771240)
 
 - My footprints on [Medium](https://medium.com/me/stories/public)
 
