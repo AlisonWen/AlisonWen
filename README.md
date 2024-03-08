@@ -5,7 +5,7 @@ I am a senior in NYCU(NCTU), who chose CS by accident and struggled. But found j
 
 Aside from schoolwork, I also enjoy ballet, movies and writing.
 
-- Reach me through [LinkedIn](www.linkedin.com/in/柏萱-温-108771240)
+- Reach me through [LinkedIn](www.linkedin.com/in/alison-wen-108771240)
 
 - My footprints on [Medium](https://medium.com/me/stories/public)
 
